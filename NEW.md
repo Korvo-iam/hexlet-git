@@ -1,1 +1,0 @@
-Mi estas la Korvo!
