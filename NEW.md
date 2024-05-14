@@ -1,1 +1,1 @@
-Mi estas la Korvo!
+No code No pain
